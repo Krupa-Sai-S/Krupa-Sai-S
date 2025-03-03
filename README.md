@@ -16,6 +16,6 @@
 
 ### Connect with Me  
 📫 Reach me at: **krupasaisci2035@gmail.com**  
-💼 LinkedIn: **[Krupa Sai Sammangi](www.linkedin.com/in/krupa-sai-s-85484327a/)**  
+💼 LinkedIn: **[Krupa Sai Sammangi](https://www.linkedin.com/in/krupa-sai-s-85484327a//)**  
 
 ⚡ **Motto:** Always learning, always growing. Let's build something great together!  
